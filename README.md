@@ -12,3 +12,9 @@
 ![Linux_5322609_Yagya_Raj_Bhatt ](https://github.com/yagya22/5322609_Yagya_Raj_Bhatt/blob/main/Linux/Screenshot%202025-07-29%20221217.png)
 
 ![Linux_5322609_Yagya_Raj_Bhatt ](https://github.com/yagya22/5322609_Yagya_Raj_Bhatt/blob/main/Linux/Screenshot%202025-07-29%20221155.png)
+
+![Linux_5322609_Yagya_Raj_Bhatt ](https://github.com/yagya22/5322609_Yagya_Raj_Bhatt/blob/main/Linux/Screenshot%202025-07-31%20104700.png)
+
+![Linux_5322609_Yagya_Raj_Bhatt ](https://github.com/yagya22/5322609_Yagya_Raj_Bhatt/blob/main/Linux/Screenshot%202025-07-31%20104647.png)
+
+![Linux_5322609_Yagya_Raj_Bhatt ](https://github.com/yagya22/5322609_Yagya_Raj_Bhatt/blob/main/Linux/Screenshot%202025-07-31%20104632.png)
